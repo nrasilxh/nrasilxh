@@ -23,7 +23,7 @@
 ---
 
 ### 📫 Let's Connect :
-- **LinkedIn**: [Nur Asilah](https://www.linkedin.com/in/nur-asilah-3764341b2/)
+- **LinkedIn**: [Nur Asilah](https://www.linkedin.com/in/nrasilxh)
 - **Email**: [nurasilahazhar19@gmail.com](mailto:nurasilahazhar19@gmail.com)
 - **GitHub**: [nrasilxh](https://github.com/nrasilxh)
 
