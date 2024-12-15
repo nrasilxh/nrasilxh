@@ -1,7 +1,7 @@
 # Bonjour, I'm Asilah 👋!
 
 ---
-![Your GIF or Image](https://media.tenor.com/jNccxJwSwVIAAAAj/valorant-omen-cat-dance.gif) ![Your GIF or Image](https://media.tenor.com/jNccxJwSwVIAAAAj/valorant-omen-cat-dance.gif) ![Your GIF or Image](https://media.tenor.com/jNccxJwSwVIAAAAj/valorant-omen-cat-dance.gif) ![Your GIF or Image](https://media.tenor.com/jNccxJwSwVIAAAAj/valorant-omen-cat-dance.gif) 
+![Your GIF or Image](https://media.tenor.com/jNccxJwSwVIAAAAj/valorant-omen-cat-dance.gif) ![Your GIF or Image](https://media.tenor.com/jNccxJwSwVIAAAAj/valorant-omen-cat-dance.gif) ![Your GIF or Image](https://media.tenor.com/jNccxJwSwVIAAAAj/valorant-omen-cat-dance.gif) ![Your GIF or Image](https://media.tenor.com/jNccxJwSwVIAAAAj/valorant-omen-cat-dance.gif) ![Your GIF or Image](https://media.tenor.com/jNccxJwSwVIAAAAj/valorant-omen-cat-dance.gif)
 
 |   🚀 **About Me** | 📚 **Academics** |
 |  :-----------------------------------------: | :-----------------------------------------------: |
