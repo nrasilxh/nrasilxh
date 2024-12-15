@@ -5,7 +5,7 @@
 
 |   🚀 **About Me** | 📚 **Academics** |
 |  :-----------------------------------------: | :-----------------------------------------------: |
-|  I'm an **Information Technology** student specializing in **Cyber Security**, with a passion for problem-solving and securing digital environments. My journey revolves around addressing technical challenges and ensuring data protection with innovative solutions. I am always excited to tackle complex issues and strengthen security measures. <br><br> _The road to success is always under construction._ | 🎓 **Final Year Student** at **Universiti Poly Tech Malaysia**<br>🏫 **Faculty of Computing**, specializing in **Cyber Security**. |
+|  I'm an **Information Technology** student specializing in **Cyber Security**, with a passion for problem-solving and securing digital environments. My journey revolves around addressing technical challenges and ensuring data protection with innovative solutions. I am always excited to tackle complex issues and strengthen security measures. <br><br> **QOTD :** _The road to success is always under construction._ | 🎓 **Faculty of Computing**, specializing in **Cyber Security**. |
 
 ---
 
